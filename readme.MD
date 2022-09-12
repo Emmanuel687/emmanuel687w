@@ -7,7 +7,7 @@
 
 <br>
 
-<p align="left"> <img src="https://i.pinimg.com/originals/34/fb/b9/34fbb9aa7bfeb8df98412067d64c2029.gif">
+<p align="left"> <img src="https://images.pexels.com/photos/2653362/pexels-photo-2653362.jpeg?auto=compress&cs=tinysrgb&w=600">
 
 <br>
 
