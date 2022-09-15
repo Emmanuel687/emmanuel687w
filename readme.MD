@@ -17,7 +17,7 @@
 
 - 🤝 I’m looking for help with **React, Wordpress**
 
-- 📫 How to reach me **koechemmanuel@gmail.com,[Twitter: @___manu10](https://twitter.com/___manu10),
+- 📫 How to reach me **koechemmanuel2002@gmail.com,[Twitter: @___manu10](https://twitter.com/___manu10),
 [Instagram: @___man.u](https://www.instagram.com/___man.u/)**
 
 <br>
